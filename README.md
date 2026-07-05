@@ -83,7 +83,7 @@
 
 ## 📫 Connect With Me
 
-💼 LinkedIn: https://linkedin.com/in/your-link
+💼 LinkedIn: https://linkedin.com/in/sanika-galande-1988633a4
 
 📧 Email: sanikagalande649@gmail.com
 
